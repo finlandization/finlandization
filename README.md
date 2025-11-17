@@ -2,7 +2,7 @@
 
 ㅤㅤ <img src="https://files.catbox.moe/7myu31.gif" width="200">
 ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ₊˚｡⋆❆⋆｡˚₊
+ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ₊˚｡⋆❆⋆｡˚₊
 
 ㅤㅤ ㅤ ㅤㅤ![](https://komarev.com/ghpvc/?username=lustangel&label=gooners&color=FAE7DE&style=plastic)
 
