@@ -1,8 +1,6 @@
 4 the indonesians bdont be scared to talk to me in b indo ok..😢 aku bukan org jerman ok
 
-<img width="6144" height="1958" alt="149345" src="https://github.com/user-attachments/assets/a7de82f2-aff1-4551-ad9d-3858f426d6dc" />
-my old pt pics from 2020-2022
-
+yes i love switching servers constantly
 ㅤㅤㅤ
 
 <img width="600" height="500" alt="113431" src="https://github.com/user-attachments/assets/41180c0e-1b24-4dce-b24e-e127ef12c113" /><img width="1280" height="1080" alt="132169" src="https://github.com/user-attachments/assets/13456a77-6ce1-41db-a236-b80e6649d1b7" />
