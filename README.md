@@ -1,3 +1,5 @@
+genuinely cant go a year without being copied smh
+
 4 the indonesians bdont be scared to talk to me in b indo ok..😢 aku bukan org jerman ok
 
 yes i love switching servers constantly
