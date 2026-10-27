@@ -1,4 +1,4 @@
-intended for mobile viewing
+intended for mobile viewing. also im indonesian dont ask me if im finnish
 
 ㅤㅤㅤㅤ<img src="https://file.garden/aI99Y_92ODronQq5/Untitled743_20261026183212.png" width="387" length="211">
 ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/sovfin)ㅤㅤㅤ[prns cc](https://pronouns.cc/@finland)
