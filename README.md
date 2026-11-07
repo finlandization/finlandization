@@ -19,5 +19,5 @@ monkey covering eye emoji...
 <img width="368" height="490" alt="172278" src="https://github.com/user-attachments/assets/55e58d7b-f9ed-4ab4-a5af-a5df811ad80b" /><img width="324" height="310" alt="172279" src="https://github.com/user-attachments/assets/d66e337d-256a-474a-b90f-a26a85c6a994" />
 <img width="329" height="457" alt="172276" src="https://github.com/user-attachments/assets/18b3c901-023a-49ba-b91e-c8a5abdb4aaf" />
 <img width="312" height="268" alt="172273" src="https://github.com/user-attachments/assets/e8732f94-69fe-4266-8e07-af97412dd209" />
-boo😍 (dont harass, please just speak directly to me)
+boo😍 (dont harass them. if youre these people, please just speak directly to me)
 
